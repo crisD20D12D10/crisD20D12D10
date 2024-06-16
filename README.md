@@ -2,4 +2,4 @@
 
 - estou estudando na alura 
 - moro em itaquaquecetuba em são paulo
-- 
+- eu gosto de açaí
